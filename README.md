@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @britneymuk
-- 🌱 I’m currently learning Bachelor of Computer Science in University Tunku  Abdul Rahman
+- 🌱 I’m currently learning Bachelor of Computer Science (Hons).
 - 📫 You may reach me via e-mail: Britney.mb30@gmail.com
 
 <!---
