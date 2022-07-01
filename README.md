@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @britneymuk
-- 🌱 I’m currently studying Bachelor of Computer Science (Hons).
 - 📫 You may reach me via e-mail: Britney.mb30@gmail.com
 
 <!---
